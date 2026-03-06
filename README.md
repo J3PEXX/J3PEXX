@@ -1,5 +1,6 @@
-## Hi there 👋
-
+![Image](https://github.com/user-attachments/assets/c11a8306-b271-4fb2-aa4f-bf5ec8a8d81f)
+NOT A SHIP NOT A SHIP NOT A SHIP NOT A SHIP
+i see mapicc and jepexx as brothers giggles and kicks my lil feet
 <!--
 **J3PEXX/J3PEXX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
